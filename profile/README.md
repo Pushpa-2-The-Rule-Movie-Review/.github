@@ -1,3 +1,5 @@
+# **Pushpa 2 Movie Review: A Masterpiece Worth Watching**
+
 ## **Introduction: The Return of Pushpa**  
 Pushpa 2 has finally arrived, and it surpasses all expectations. Directed by Sukumar and starring Allu Arjun, this sequel dives deeper into the raw and riveting world of Pushpa Raj. Fans have been eagerly waiting, and the movie does not disappoint.  
 
